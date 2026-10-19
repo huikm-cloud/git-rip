@@ -2,7 +2,7 @@
 
 ## 🖼 Картинка для настроения
 
-![Котик](https://i.pinimg.com/originals/58/c0/f4/58c0f4e978688bc820b44f1891dc251b.gif)
+![Котик](https://avatars.mds.yandex.net/i?id=3c81a2801a314a987ab09900f1cd87569951cb66-13088547-images-thumbs&n=13)
 
 ---
 *Выполнила: Ирина*
